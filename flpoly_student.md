@@ -1,4 +1,4 @@
-## Jenna Polur 
+## Jenna Polur my preferred name is Tai
 
 ### SU B 2021
 
